@@ -1,3 +1,4 @@
 Racismo: O Silêncio que Fala
 
 Creé este sitio con la firme convicción de que el racismo no debe ser ignorado ni minimizado en ninguna parte del mundo. A través de este espacio, busco generar conciencia sobre las profundas raíces de la discriminación racial que, aunque se hayan manifestado de diversas formas a lo largo de la historia, siguen afectando a millones de personas diariamente. La idea es ofrecer una plataforma donde se pueda hablar, reflexionar y compartir historias, experiencias y recursos que ayuden a combatir el racismo en todos sus niveles. Este sitio nace como una respuesta a la necesidad urgente de promover la inclusión, el respeto mutuo y la igualdad de oportunidades para todas las personas, independientemente de su raza o etnia. Si bien el racismo es un problema global, creo firmemente que, al unir nuestras voces y esfuerzos, podemos avanzar hacia una sociedad más justa y equitativa.
+o
